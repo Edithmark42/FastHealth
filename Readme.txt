@@ -1,2 +1,2 @@
 Checkout this Website:
-http://www.fasthealth.in/
+http://fasthealth.in/
